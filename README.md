@@ -6,7 +6,7 @@
 
 ### App Walk-though
 
-//https://gfycat.com/backdownrightbluemorphobutterfly
+//https://gfycat.com/backdownrightbluemorphobutterfly.gif
 <img width="465" alt="Screen Shot 2023-01-31 at 12 52 05 PM" src="https://user-images.githubusercontent.com/69479216/215842750-eb048640-e1f6-4425-8b36-39303aa33d33.png">
 
 
